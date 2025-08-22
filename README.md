@@ -1,1 +1,0 @@
-# Mutivariado-Modulo-J
